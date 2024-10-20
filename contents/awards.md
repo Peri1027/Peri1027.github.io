@@ -1,9 +1,7 @@
-- First-prize Academic Scholarship, 2023.
+- Teaching's Qualification Certificate, 2023
 
-- Freshman Academic Scholarship, 2022.
+- Mandarin proficiency test: Level 2A, 2020
 
-- Excellent Graduation Project of Jiangsu Province, 2022.
+- CET6,2020
 
-- First-prize Enterprise Scholarship, 2021.
-
-- First-prize Academic Scholarship, 2019.
+- CET4,2019
